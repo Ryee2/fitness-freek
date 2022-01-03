@@ -1,1 +1,1 @@
-# fitness-freek
+# Fitness Freek
